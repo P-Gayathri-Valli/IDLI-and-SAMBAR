@@ -1,0 +1,1 @@
+Idli Sambar is one of the most favourite South Indian dishes we all enjoy. The taste of steamed and soft idli dipped in hot sambar is truly unmatched. Idli is steamed and it has fewer calories. On the other hand, sambar is prepared using a lot of veggies and is super healthy and is low in calories too.Idli with sambar is best for breakfast.
